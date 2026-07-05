@@ -9,7 +9,7 @@
 - WhatsAPP Telegram Facebook TikTok ins(ig) CMB 大黄蜂 火种 曼巴 ChatGPT
 
 ---
-<a href="https://hdd888.cyou" target="_blank" rel="noopener noreferrer">👉海外账号购买 </a>  
+<a href="https://shop.hdd888.cc" target="_blank" rel="noopener noreferrer">👉海外账号购买 </a>  
 ...........  
 <a href="https://t.me/ddkfnn" target="_blank" rel="noopener noreferrer">👉✈️ 我的电报 </a>  
 
